@@ -1,3 +1,5 @@
 ### Hi 😊
 
-She/Her, 22, Lua Fangirl
+- She/Her
+- 22
+- Lua Fangirl
